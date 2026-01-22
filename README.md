@@ -1,5 +1,13 @@
 # *un*-extended-life
 
+### 26. 1. 23 
+- 給料日当日の残高です: 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2026/jan23-l1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2026/jan23-l2.mp4
+- YouTube: 
+  - https://youtube.com/shorts/qtIUdg-O2eY
+  - https://youtube.com/shorts/cUQBQ3oeexA
+
 ### 26. 1. 22 
 - https://youtu.be/ekR9cy4_KDw
 
