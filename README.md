@@ -1,5 +1,8 @@
 # *un*-extended-life
 
+### 26. 1. 22 
+- https://youtu.be/ekR9cy4_KDw
+
 ### 26. 1. 17 
 - https://youtube.com/shorts/geNwbw1bZwI
 - https://youtube.com/shorts/L5DlQH4a23Q
