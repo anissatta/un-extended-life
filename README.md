@@ -1,6 +1,14 @@
 # *un*-extended-life
 
 ### 26. 1. 23 
+- 8 AM: 追ってUjutubeにもアップロードします。 
+  - https://aikidoabeno.web.fc2.com/_json/sarang-bk/jan24-17.mp4
+  - https://aikidoabeno.web.fc2.com/_json/sarang-bk/jan24-18.mp4
+  - https://aikidoabeno.web.fc2.com/_json/sarang-bk/jan24-19.mp4
+- YouTube: 
+  - https://youtu.be/lVpQkgODcPU
+  - https://youtu.be/jZFZVrGoskM
+  - https://youtu.be/acxI3mQh8v4
 - 7 AM: 梅田のグランドビル内の支店が午前7時に開店するのでそこで記帳しました。動画は部屋に戻ってからアップロードします。 
   - https://mycatiskorean.blogspot.com/2026/01/pps_0662854799.html?m=1
   - これが噂の原因だとは思えませんが、私の預金残高の減り方が緩やかになっているのは退職後スーパーマーケットのプリペイドカードに一切チャージを行っていないので当然なのです。私の預金残高は各種プリペイドカードの残高との合計で考えてみて下さい。
