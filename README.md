@@ -1,6 +1,10 @@
 # *un*-extended-life
 
 ### 26. 1. 23 
+- Hello Work: 
+  - https://youtu.be/0anz6SU5lEs
+  - https://youtu.be/9sXRK6vw3Eg
+  - https://youtu.be/23yuFWf2sd4
 - PS: こちらの方が画質が良いです。 
   - https://kangdaegae.web.fc2.com/misc/ipoint/2026/jan23-b1.mp4
   - https://kangdaegae.web.fc2.com/misc/ipoint/2026/jan23-b2.mp4
