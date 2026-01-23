@@ -1,6 +1,10 @@
 # *un*-extended-life
 
 ### 26. 1. 23 
+- PS: こちらの方が画質が良いです。 
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2026/jan23-b1.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2026/jan23-b2.mp4
+  - https://kangdaegae.web.fc2.com/misc/ipoint/2026/jan23-b3.mp4
 - 8 AM: 追ってUjutubeにもアップロードします。 
   - https://aikidoabeno.web.fc2.com/_json/sarang-bk/jan24-17.mp4
   - https://aikidoabeno.web.fc2.com/_json/sarang-bk/jan24-18.mp4
